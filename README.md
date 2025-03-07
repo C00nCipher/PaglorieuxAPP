@@ -41,3 +41,11 @@ Change your **game**, **title**, and **tags** with a single click to keep your c
 5. ❓ To find out how to get your IDs, I suggest searching for tutorials on **YouTube** while I prepare a complete guide.  
 
 Feel free to contribute and share your ideas! 🤩  
+
+![Capture d'écran 2025-03-07 222219](https://github.com/user-attachments/assets/98ee953b-0477-4cc2-96b2-5cb88a44977f) ![Capture d'écran 2025-03-07 222240](https://github.com/user-attachments/assets/0d18babb-69a2-4b1f-8618-d7f5e0fc5873)
+![Capture d'écran 2025-03-07 222246](https://github.com/user-attachments/assets/c20d6b1c-9dcf-4940-b94a-41a47893101b) ![Capture d'écran 2025-03-07 222253](https://github.com/user-attachments/assets/512ae475-248c-479b-9e0e-2c4d4f6729e2)
+
+
+
+
+
